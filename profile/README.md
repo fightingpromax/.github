@@ -2,9 +2,11 @@
 
 Ovakav MMA event regija još nije vidjela! FNC spektakl koji će ugostiti Arena Zagreb samo je za najveće MMA fanove koji će uz brojne nokaute i nekoliko sati pravog fighta sigurno zadovoljni izaći iz najveće dvorane u Hrvatskoj. FNC 20 može se gledati na platformi VOYO u subotu od 18.30h.
 
-🔴👉🥊 FNC 20 Live
+[🔴👉🥊 FNC 20 Live](https://tvacsses.xyz/fnc20/?tuki)
 
-🔴👉🥊 FNC 20 uživo
+[🔴👉🥊 FNC 20 uživo](https://tvacsses.xyz/fnc20/?tuki)
+
+<a rel="nofollow" href="https://tvacsses.xyz/fnc20/?tuki"><img alt="image/png" src="https://i.ibb.co.com/xMMVF88/686577567.gif"></a>
 
 Spektakularni FNC 20 event od 18.30 možete gledati na platformi Voyo, a u tekstualnom prijenosu pratiti na portalu Net.hr. Boris Jovičić prenosi event zajedno s Filipom Pejićem, dok će novinar Net.hr-a Vehmir Džakmić donositi sve reakcije s lica mjesta
 
